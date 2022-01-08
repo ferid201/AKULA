@@ -1,2 +1,0 @@
-# AKULA
-Akula denizde
